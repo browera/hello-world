@@ -23,7 +23,7 @@
 3. Innovative Teaching Tech 
 
 
-#### To Learn More About UNI Visit http://uni.edu
+#### To Learn More About UNI Visit [University of Northern Iowa](http://uni.edu)
 
 Ashley's favorite thing about UNI:
 > The size of the campus and the many opportunties made availble. 
